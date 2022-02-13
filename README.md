@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @KunYi
+- 👀 I’m interested in cats, dogs, art and electricity
+- 🌱 I’m currently learning coding, power optimization, etc.
+- 💞️ I’m looking to collaborate on fun projects that allow me to grow as a person!
+- 📫 How to reach me: https://ca.linkedin.com/in/kunyi-wang-03
